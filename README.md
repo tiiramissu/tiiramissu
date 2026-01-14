@@ -6,6 +6,6 @@
   <p> <img src="https://64.media.tumblr.com/121fe362b63ce8bb43b95b4912292920/367800bdbda5a761-7f/s75x75_c1/155768ede435faee8502874f41f95c5516044c2b.gifv"> i go on both safe and 18+ servers, usually the latter </p>
   <p> <img src="https://64.media.tumblr.com/e5a6cf61a81559333336033bce571e00/367800bdbda5a761-c1/s75x75_c1/8614e787e692d1b67930514af84dbd456cd6a066.gifv"> can find me in the cookie run and dandy worlds corners, spawn, docks, and some others! </p>
   <p> <img src="https://64.media.tumblr.com/4baf86373862b17063de5b24a1abadfa/367800bdbda5a761-92/s75x75_c1/a49f2a39082d2780e35d8598254b8c7b10074428.gifv"> can do ships if i feel like it, no rp or erp </p>
-  <img src="https://64.media.tumblr.com/7fd512c679262fb892113be1ccf9b908/ea425c9f7330831b-44/s250x400/e74cac11ab78811d3425ce2d40acddfda0d0cf62.gifv"><img src="https://64.media.tumblr.com/442e7e2f8a664d96ab7014fb300cbfc5/1cbd492cd95f3f27-2a/s100x200/05c4cc0db3153351faed8ec6b8dd531fb45ffaee.pnj">
+  <img src="https://64.media.tumblr.com/e70040f770c0234679d3f0fcce82b106/1fa4cd48d5a04dea-dc/s100x200/03f80055f1253b3b607c488e99cbda7c2b9797e9.pnj"><img src="https://64.media.tumblr.com/7fd512c679262fb892113be1ccf9b908/ea425c9f7330831b-44/s250x400/e74cac11ab78811d3425ce2d40acddfda0d0cf62.gifv"><img src="https://64.media.tumblr.com/442e7e2f8a664d96ab7014fb300cbfc5/1cbd492cd95f3f27-2a/s100x200/05c4cc0db3153351faed8ec6b8dd531fb45ffaee.pnj">
   <p> <img src="https://64.media.tumblr.com/51e98ddcdda1e9f920eb71865c62746b/dc2fea9e584a0a9d-61/s500x750/643769f614690fe01ee5eff0f394dc988d76bd36.pnj"> </p>
 </ul>
